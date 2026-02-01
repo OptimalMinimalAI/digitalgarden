@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/vault/digital-knowledge-garden/","tags":["gardenEntry"]}
+{"dg-publish":true,"dg-path":"Digital Knowledge Garden.md","permalink":"/digital-knowledge-garden/","tags":["gardenEntry"]}
 ---
 
 Connecting the dots...

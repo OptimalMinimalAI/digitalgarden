@@ -75,7 +75,7 @@ The profitable servants on the other hand were promised they would be made “th
 - Fear is wicked, neglect is slothful; they both lead to ruin
 - You can’t save your way to freedom
 
-In order to increase our ability to receive we must first recognize that with greater abundance comes greater responsibility. The next step is to start “responding” to life’s experiences as if you have already received the abundance that awaits you. In other words, if you want to be a millionaire, start managing your personal (and business) expenses like a millionaire does.
+In order to increase our ability to receive we must first recognize that with greater abundance comes greater responsibility. The next step is to start “responding” to life’s experiences as if you have already received the abundance that awaits you. In other words, if you want to be wealthy, start managing your personal (and business) expenses like the wealthy do.
 
 A quick, frictionless method to immediately expand your ability to receive financially is implementing a personal balance sheet.
 
@@ -88,7 +88,7 @@ On top of creating an improved financial awareness, the balance sheet will:
 - provide increased control and financial empowerment
 - improve self-control and decision making
 
-Remember, “what we track improves, what we neglect decays.”
+Remember, “**what we track improves, what we neglect decays**.”
 
 ---
 
@@ -109,7 +109,7 @@ These are all proven wealth vehicles where I have strong networks, some experien
 
 - **Small Business** - taking AI serious from the outset and even taking a few courses put me in position to provide services for people in my network, one being managing the media on a growing YouTube page (accompanied w/ AI).
 - **Crypto** - my network has allowed me to attend crypto conferences, speak at schools, and collaborate with other crypto “influencers” to host webinars/workshops.
-- **Real Estate** - living in a thriving Georgia real estate market, a good number of my peers have turned real estate agents and investors. I’ve been able to take advantage of this by helping facilitate 2 wholesale deals over the past couple years.
+- **Real Estate** - living in a thriving Georgia real estate market, a few of my peers have turned real estate agents and investors. I’ve been able to take advantage of this by helping facilitate 2 wholesale deals over the past couple years.
 
 While these activities haven’t produced any home runs yet, they have put me in a great position to take advantage of any opportunity that may come my way. It also makes it that much easier to pick a business model of my own.
 
