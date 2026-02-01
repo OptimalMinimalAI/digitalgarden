@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/vault/daily-note/2026-01-31-daily-note-day-0/","tags":["#dailynote","#learning","#brand_projects","#love_projects"]}
+{"dg-publish":true,"permalink":"/vault/daily-note/2026-01-31-daily-note-day-0/","tags":["dailynote","learning","brand_projects","love_projects"]}
 ---
 
 

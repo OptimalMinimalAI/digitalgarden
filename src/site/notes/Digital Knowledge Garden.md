@@ -4,4 +4,4 @@
 
 Connecting the dots...
 
-[[DKG/Productivity/Understanding Your Capacity\|Understanding Your Capacity]]
+[[Productivity/Understanding Your Capacity\|Understanding Your Capacity]]
